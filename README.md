@@ -1,6 +1,6 @@
 # 全球最实惠域名namesilo，优惠码
 
-全球最低價域名免費永久隱私保護NameSilo(新用戶1$優惠碼mikewutv）支付寶可用 
+全球最低價域名免費永久隱私保護NameSilo(新用戶1$優惠碼mikewutv）支付寶微信可用 
 
 注册链接 https://www.namesilo.com/?rid=1eb9483zt
 
