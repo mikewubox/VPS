@@ -18,7 +18,7 @@ https://www.linode.com/lp/brand-free-credit-short/?r=fb91098dd0609214db8afb40712
 
 注册网址https://m.do.co/c/927b03987854
 
-### CN2GIA VPS促销，优惠码
+### 全球最佳中国电信CN2GIA线路VPS，优惠码
 gigs-VPS马来香港公司(支持支付寶paypal),https://clientarea.gigsgigscloud.com/?affid=2520
 
 CN2GIA綫路 洛杉矶CloudletXD 86折优惠码9HQIQP3TGI5G
@@ -33,8 +33,9 @@ CN2GIA綫路     香港DedicatedServer86折优惠码5VJQ7UTF34I9
 
 中國綫路優化   香港新加坡CloudletK86折优惠码Z665VDDW7CKN
 
+### onevps香港实体公司
 香港公司onevps永久75折优惠码new25jun无限流量支持支付宝paypal
 
 注册链接https://www.onevps.com/portal/aff.php?aff=7635
 
-如果你注册后用了半年以上，我将收到一些推荐费,你不会增加额外费用。
+
