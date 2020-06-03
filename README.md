@@ -1,5 +1,10 @@
-# VPS限量促销，优惠码
+# 全球最实惠域名namesilo，优惠码
 
+全球最低價域名免費永久隱私保護NameSilo(新用戶1$優惠碼mikewutv）支付寶可用 
+
+注册链接 https://www.namesilo.com/?rid=1eb9483zt
+
+# VPS限量促销，优惠码,美国实体公司
 
 现在注册LinodeVPS送$20(赠金使用有效期超1年，需外币或双币信用卡)
 
@@ -11,6 +16,7 @@
 
 注册网址https://m.do.co/c/927b03987854
 
+# CN2GIA VPS促销，优惠码
 gigs-VPS马来香港公司(支持支付寶paypal),https://clientarea.gigsgigscloud.com/?affid=2520
 
 CN2GIA綫路 洛杉矶CloudletXD 86折优惠码9HQIQP3TGI5G
