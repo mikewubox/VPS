@@ -13,7 +13,7 @@
 ### lino疫情优惠注册$100 有效60天
 https://www.linode.com/lp/brand-free-credit-short/?r=fb91098dd0609214db8afb407122e453d9cbfbaa
 
-### ldigitalocean美国实体公司
+### digitalocean美国实体公司
 现在在注册DigitalOcean云主机VPS送$100刀（免费浮动IP,支持paypal银联卡）
 
 注册网址https://m.do.co/c/927b03987854
