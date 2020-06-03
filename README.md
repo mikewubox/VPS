@@ -5,21 +5,20 @@
 注册链接 https://www.namesilo.com/?rid=1eb9483zt
 
 # VPS限量促销，优惠码,美国实体公司
-
+### linode美国实体公司
 现在注册LinodeVPS送$20(赠金使用有效期超1年，需外币或双币信用卡)
-
+某英文Linux大神的$20优惠码promotion(必填)OBJECT20
 注册链接https://www.linode.com/?r=fb91098dd0609214db8afb407122e453d9cbfbaa
 
-## lino疫情优惠注册$100 有效60天
+### lino疫情优惠注册$100 有效60天
 https://www.linode.com/lp/brand-free-credit-short/?r=fb91098dd0609214db8afb407122e453d9cbfbaa
 
-某英文Linux大神的$20优惠码promotion(必填)OBJECT20
-
+### ldigitalocean美国实体公司
 现在在注册DigitalOcean云主机VPS送$100刀（免费浮动IP,支持paypal银联卡）
 
 注册网址https://m.do.co/c/927b03987854
 
-# CN2GIA VPS促销，优惠码
+### CN2GIA VPS促销，优惠码
 gigs-VPS马来香港公司(支持支付寶paypal),https://clientarea.gigsgigscloud.com/?affid=2520
 
 CN2GIA綫路 洛杉矶CloudletXD 86折优惠码9HQIQP3TGI5G
