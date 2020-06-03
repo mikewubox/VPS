@@ -10,6 +10,9 @@
 
 注册链接https://www.linode.com/?r=fb91098dd0609214db8afb407122e453d9cbfbaa
 
+## lino疫情优惠注册$100 有效60天
+https://www.linode.com/lp/brand-free-credit-short/?r=fb91098dd0609214db8afb407122e453d9cbfbaa
+
 某英文Linux大神的$20优惠码promotion(必填)OBJECT20
 
 现在在注册DigitalOcean云主机VPS送$100刀（免费浮动IP,支持paypal银联卡）
